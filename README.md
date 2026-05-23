@@ -1,10 +1,10 @@
-# 🚀 Sibghat Ullah Asif — Full-Stack Developer & DevOps Engineer
+# 🚀 Sibghat Ullah Asif  Full-Stack Developer & Future DevOps Engineer
 
 <div align="center">
 
 **Architecting secure, scalable web ecosystems • Automating infrastructure at scale • Bridging code & cloud**
 
-[📧 Email](mailto:sibghat.asif@example.com) • [💼 LinkedIn](https://linkedin.com/in/sibghatullah-asif) • [🌐 Portfolio](#) • [📱 WhatsApp](https://wa.me/923334567890)
+[📧 Email](mailto:sibghatullah1a2a3a@gmail.com) • [💼 LinkedIn](https://www.linkedin.com/in/sibghat-ullah-8490aa279/) • [🌐 Portfolio](#) • [📱 WhatsApp](https://wa.me/923185817775)
 
 </div>
 

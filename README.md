@@ -4,7 +4,7 @@
 
 **Architecting secure, scalable web ecosystems • Automating infrastructure at scale • Bridging code & cloud**
 
-[📧 Email](mailto:sibghatullah1a2a3a@gmail.com) • [💼 LinkedIn](https://www.linkedin.com/in/sibghat-ullah-8490aa279/) • [🌐 Portfolio](https://sibghatullah-pk.github.io/sibghat_port/) • [📱 WhatsApp](https://wa.me/923185817775)
+[📧 Email](mailto:sibghatullah1a2a3a@gmail.com) • [💼 LinkedIn](https://www.linkedin.com/in/sibghat-ullah-8490aa279/) • [🌐 Portfolio](https://sibghatullah-pk.github.io/Sibghatullah-Asif/) • [📱 WhatsApp](https://wa.me/923185817775)
 
 </div>
 
